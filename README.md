@@ -1,2 +1,2 @@
 # Applejr-Certificates
-Credit To Applejr.xyz Applnjr.net
+Credit To Applejr.xyz Applejr.net
